@@ -1,0 +1,1 @@
+# altermagnet_SC
